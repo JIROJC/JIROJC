@@ -7,4 +7,4 @@ Utilizo esse espaço para organização e compartilhamento dos meus projetos
 
 Voce pode entrar em contato comigo 
 0000110725730xsp@al.educacao.sp.gov.br
-https://tenor.com/bSOQ9.gif
+![](https://media1.tenor.com/m/mIeJMlmLcB0AAAAC/barbie-diy.gif)
